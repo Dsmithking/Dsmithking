@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Dsmithking
+- 🌱 I’m currently learning programing
